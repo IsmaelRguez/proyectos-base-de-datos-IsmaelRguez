@@ -1,1 +1,0 @@
-# proyectos-base-de-datos-IsmaelRguez
